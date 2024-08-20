@@ -1,0 +1,1 @@
+# swisstrnik_task6
